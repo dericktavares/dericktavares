@@ -1,4 +1,4 @@
-## Hi there 👋
+## oi pessoal aqu é derick 
 
 <!--
 **dericktavares/dericktavares** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
