@@ -1,4 +1,4 @@
-## oi pessoal aqui é derick eu gosto de jogos eu dou um you tuber não sou famoso e só tenho 247 inscritos eu estou fazendo cursso no senai de progamação nome do meu canal DERICKJOGOS minha idade 16 anos
+## oi pessoal aqui é derick eu gosto jogos e eu estou fazendo cursso no senai de progamação minha idade 16 anos
 http://www.youtube.com/@derickjogo
 
 <!--
